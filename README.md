@@ -1,1 +1,0 @@
-# clubDataEntry.github.io
